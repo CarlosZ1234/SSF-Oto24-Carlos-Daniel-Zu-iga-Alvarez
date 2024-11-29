@@ -1,1 +1,0 @@
-# SSF-Oto24-Carlos-Daniel-Zu-iga-Alvarez
